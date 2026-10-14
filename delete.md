@@ -13,7 +13,7 @@ then confirm. (Also available from your Profile screen.)
 OR
 
 **By email** — send a request to
-**niteeshlakamsani2001@gmail.com** from the email address you
+**jeevanadatha@jeevanadatha.com** from the email address you
 used to sign in. Subject: "Delete my account". You will receive
 a confirmation within 7 days; deletion is completed within 30 days
 of confirmation.
@@ -35,4 +35,4 @@ them. Backups are overwritten on the standard 90-day cycle.
 
 ## Contact
 
-Questions: **niteeshlakamsani2001@gmail.com**
+Questions: **jeevanadatha@jeevanadatha.com**

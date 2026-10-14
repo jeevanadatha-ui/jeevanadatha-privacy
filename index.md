@@ -46,4 +46,4 @@ App content → Privacy policy field.
 - Notifications (to inform you about app events you choose)
 
 ## Contact
-Questions about this policy or your data: **niteeshlakamsani2001@gmail.com**
+Questions about this policy or your data: **jeevanadatha@jeevanadatha.com**
